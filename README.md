@@ -11,4 +11,4 @@
 ![alt tag](http://imageshack.com/a/img921/1761/HFeHLK.jpg "Fifth Kalima")
 ![alt tag](http://imageshack.com/a/img922/4673/zbsjvt.jpg "Six Kalima")
 ![alt tag](http://imageshack.com/a/img921/2239/TATHQs.jpg "About Me")
-![alt tag]()
+
